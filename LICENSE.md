@@ -1,4 +1,4 @@
-# 
+# Get the ultimate iMovie for macOS script with iMovie for macOS premium Script: scene-transitions & video-stabilization. Featuring scene-transitions and video-stabilization, it's
 
 
 
